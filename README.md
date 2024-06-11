@@ -1,1 +1,4 @@
 # Practice
+CHÓ 
+mèo
+gà
