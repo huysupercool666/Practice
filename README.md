@@ -13,3 +13,12 @@ Cá Voi
 Cá Mập
 Cá bụng phệ
 Cá mập đầu buồi
+CHÓ 
+mèo
+gà
+voi 
+gấu
+tê giác
+nhện
+rắn
+thanh
