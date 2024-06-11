@@ -1,1 +1,4 @@
 # Practice
+Rắn 
+Bò
+Gà
