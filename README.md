@@ -8,3 +8,5 @@ Tê Tê
 Cá Heo
 Cá Voi
 Cá Mập
+Cá bụng phệ
+Cá mập đầu buồi
